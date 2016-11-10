@@ -1,0 +1,1 @@
+![referendum4dicembre2016_iovotono](images/referendum4dicembre2016_iovotono.png)
